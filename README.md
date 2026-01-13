@@ -1,1 +1,1 @@
-# frame101 candela kumag ka 
+# frame101
